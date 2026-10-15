@@ -55,9 +55,6 @@ Estou aberto a trocar conhecimentos, receber sugestões e conhecer oportunidades
 - **GitHub:** [Meus repositórios]([https://github.com/Goodoy94])
 - **LinkedIn:** [Meu perfil](https://acesse.one/rR4zquR)
 
-*Substitua os links pelos seus perfis reais antes de publicar.*
-
----
 
 <div align="center">
 
